@@ -25,9 +25,9 @@ I'm eager to collaborate on projects that:
 - Aim to solve real-world problems through **innovative solutions**.
 
 ## 📫 Get in Touch
-- **Email:** [rosette.gilo@example.com](mailto:rosette.gilo@example.com)
-- **LinkedIn:** [linkedin.com/in/rosette-gilo](https://www.linkedin.com/in/rosette-gilo)
-- **Portfolio:** [rosettegilo.dev](https://www.rosettegilo.dev)
+- **Email:** [GMAIL ACCOUNT](mailto:rosette.gilo@example.com)
+- **LinkedIn:** [FACEBOOK ACCOUNT](https://www.linkedin.com/in/jamaica-rose-gilo-7759a42a7/)
+
 
 ## 😄 Pronouns
 She/Her
